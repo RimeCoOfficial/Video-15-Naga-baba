@@ -1,6 +1,6 @@
 # Naga baba
 
-![](Screen Shot 2016-11-27 at 2.20.50 PM)
+![](Screen Shot 2016-11-27 at 2.20.50 PM.png)
 
 https://vimeo.com/117825932
 
